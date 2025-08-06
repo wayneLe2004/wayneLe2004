@@ -1,4 +1,5 @@
-## Hi there 👋
+![Profile views](https://visitor-badge.laobi.icu/badge?page_id=lnam2004.lnam2004&left_color=gray&right_color=blue)
+
 
 <!--
 **lnam2004/lnam2004** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
