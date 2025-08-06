@@ -1,4 +1,5 @@
 ![Profile views](https://visitor-badge.laobi.icu/badge?page_id=lnam2004.lnam2004&left_color=gray&right_color=blue)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31sf7hgqgdxmikbg2va6foxpgybu&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=true&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
 <!--
