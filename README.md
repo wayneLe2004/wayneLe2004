@@ -3,8 +3,8 @@
 
 ![iamge alt](https://github.com/lnam2004/lnam2004/blob/2a16c0096e06784371235c31afba344508b92f00/whis)
 
-**try your best not to annoy me**
+**ᴛʀʏ ʏᴏᴜʀ ʙᴇꜱᴛ ɴᴏᴛ ᴛᴏ ᴀɴɴᴏʏ ᴍᴇ**
 
-<img src="https://media.giphy.com/media/f8vFFk3eCDpKE/giphy.gif" width="100" />
+
 
 
