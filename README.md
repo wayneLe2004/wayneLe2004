@@ -1,5 +1,1 @@
-<img width="935" height="284" alt="image" src="https://github.com/user-attachments/assets/a876639b-d5ce-4b99-944b-6b5c29861e48" />
-
-
-
-
+<img width="500" height="279" alt="neon genesis evangelion GIF" src="https://github.com/user-attachments/assets/4b8d3dfe-99c9-4a70-a9b2-ca31e9dc5cee" />
